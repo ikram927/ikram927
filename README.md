@@ -93,6 +93,90 @@ A free, powerful, multi-purpose tool that helps you monitor system resources, de
  9.7k  C
 @cilium profile cilium / cilium
 eBPF-based Networking, Security, and Observability
+Ninecolours
+wishlist0
+shopping0
+login-register
+WOMEN
+MENS
+KIDS WEAR
+PLUS SIZE
+EXPLORE MORE
+JEWELLERY
+Home
+party-wear-lehenga-choli
+Net Embroidery Lehenga Choli In Green Colour - LD5690051
+Net Embroidery Lehenga Choli In Green Colour - LD5690051
+Net Embroidery Lehenga Choli In Green Colour - LD5690051 In Green Colour
+Product Code - LD5690051
 
- 17.3k  Go
-Explore more →
+Share
+
+
+
+
+https://www.ninecolours.com/net-embroidery-lehenga-choli-in-green-colour---ld5690051-LD5690051
+
+Copy
+- 1 Reviews
+PKR 32429.68 67756.12 52% OFF
+Lehenga Choli
+Checked Icon
+Unstitched Lehenga Choli₨0.00
+Checked Icon
+Ready to Wear Stitching₨321.15
+Checked Icon
+Customize Stitching₨1,490.13
+COLOR
+QTY:
+1
++-
+Enter a PIN code
+CHECK
+Ask Your Question
+NEED HELP?
+Chat with us
+PRODUCT DESCRIPTION
+Orange Colour Cotton Fabric Party Wear Lehenga Choli Comes With Matching Blouse. This Lehenga Choli Is Crafted With Embroidery.This Lehenga Choli Comes With Unstitched Blouse Which Can Be Stitched Up To Size 42.
+Read More
+SHIPPING TIME
+For india pincode check and for out of india by default shipping date calculate and display
+
+DISCLAIMER
+This product will be shipped to you after 1-2 weeks from the date of order placed. All custom made orders are not returnable....
+Read More
+RATINGS
+couple-star
+4.0 
+1 verified buyers
+5
+0
+4
+1
+3
+0
+2
+0
+1
+0
+CUSTOMER REVIEWS (1)
+4
+a showstopper. It stands out in a crowd and exudes elegance.
+
+manisha | 12 Mar 2023
+View all reviews
+Fabric	: Net
+For	: Women
+Type	: Lehenga Choli
+Lehenga Fabric	: Net
+Blouse Fabric	: Net
+Dupatta Fabric	: Net
+Work	: Embroidered | Embroidery
+Colour	: Green
+Lehenga Colour	: Green
+Blouse Color	: Green
+Dupatta Color	: Green
+Style	: Lehenga Choli
+Occasion	: Party Wear
+Content	: Dupatta | Unstitched Blouse | Semi Stitched Lehenga
+Discount	: 10% and above | 20% and above | 30% and above | 40% and above
